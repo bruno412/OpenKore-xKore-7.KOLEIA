@@ -1,4 +1,4 @@
-Alisson Rag
+Alisson
 CodePlay
 Stigma.CB
 Jinshi
